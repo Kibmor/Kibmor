@@ -8,6 +8,7 @@
 
 📄 [Мое резюме на hh.ru](https://hh.ru/applicant/resumes/view?resume=9211bdc1ff0bcf4ecf0039ed1f553849324962)
 
+
 💬 Мой телеграм: [@Ramil_Yarullin](https://t.me/Ramil_Yarullin)
 
 ✉️ Моя почта: ramil.yarullin.2016@yandex.ru
